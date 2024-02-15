@@ -2,4 +2,4 @@
 
 这里是SomeBottle的Minecraft服务器项目~
 
-![tmk1](https://user-images.githubusercontent.com/12976469/192131287-49b4631c-ce11-436f-939c-5cb8f9772f99.gif)
+![hime_scared](https://github.com/Bottle-M/.github/assets/12976469/5baf5041-741f-41d4-be68-a4983bed5fbc)  
